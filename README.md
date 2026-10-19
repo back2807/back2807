@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @back2807
-- 👀 I’m interested in game
+- 👀 I’m interested in content creation, digital marketing and game
 - 🌱 I’m currently learning coding game app
 - 💞️ I’m looking to collaborate on app development 
 - 📫 How to reach me: bachct.tbc@gmail.com
